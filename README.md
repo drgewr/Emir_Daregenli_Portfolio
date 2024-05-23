@@ -1,1 +1,1 @@
-# Hi there!
+# Hi there! I am a 3rd year Computer Engineering student in Middle East Technical University Northern Cyprus Campus. I am going to edit my portfolio including my school projects and personal stuff. Stay tuned!
